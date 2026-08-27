@@ -1,1 +1,1 @@
-# MichaelDWrightPortfolio
+My name is Michael Wright, a graphic designer and creative developer passionate about creating ideas into visual experiences. I combine graphic design, UX, web design, animation, and coding to create work that is both visually engaging and functional.
